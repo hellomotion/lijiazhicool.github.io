@@ -1,0 +1,2 @@
+# lijiazhicool.github.io
+Privacy
